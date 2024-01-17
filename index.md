@@ -5,4 +5,4 @@
 ##### Hello
 ###### Hello
 
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Image of Fawfyl](https://static.wikia.nocookie.net/adaywithbowserjr/images/d/dd/FawfulADWBjr.png/revision/latest?cb=20200116234559)
